@@ -33,7 +33,7 @@
 
 #### 🎓 Certificate
 
-![](https://udemy-certificate.s3.amazonaws.com/image/UC-a1144278-fed6-4c08-b13a-0e586af5fae7.jpg)
+![](https://udemy-certificate.s3.amazonaws.com/image/UC-a1144278-fed6-4c08-b13a-0e586af5fa)
 
 
 
